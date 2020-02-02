@@ -6,7 +6,7 @@ Copyright: (c) 2017 ks
 #Sunwolves勝利
 
 
-sunwolves勝利。
+Sunwolves勝利。
 このまま勝利を重ねて、来期以降のSuper Rugbyの継続参戦を勝ち取ってほしい
 
 Sunwolvesは、既定路線どおりならば今季がSupper Rugby最後のシーズン。
